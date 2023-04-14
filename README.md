@@ -1,1 +1,0 @@
-# stu-mini-project
